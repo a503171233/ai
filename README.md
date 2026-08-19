@@ -1,4 +1,4 @@
-# ai
+# 免费ai中转站合集
 免费AI中转站
 
 0.02倍率 https://meapi.space/register?aff=UG9CTYPP7S7M
