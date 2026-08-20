@@ -7,6 +7,8 @@
 
 0.1倍率 https://smallice.xyz/register?aff=T3UCB44QWRSP
 
+送100额度 https://www.mcgrox.top/register?aff=99PA26QG66XD
+
 送40算力|每日签到送50算力 https://gpt.api456.me/?aff=tWzj
 
 送50刀|使用邀请码送20刀 https://gorouter.app/sign-up?aff=ighS
@@ -17,4 +19,4 @@
 
 送175额度 https://agentrouter.org/register?aff=iS6r
 
-送100额度 https://www.mcgrox.top/register?aff=99PA26QG66XD
+
