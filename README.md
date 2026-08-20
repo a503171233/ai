@@ -15,4 +15,6 @@
 
 送100刀|每日签到随机|每日五次抽奖随机 https://docode.cc/register?aff=8QJl
 
-送175刀 https://agentrouter.org/register?aff=iS6r
+送175额度 https://agentrouter.org/register?aff=iS6r
+
+送100额度 https://www.mcgrox.top/register?aff=99PA26QG66XD
