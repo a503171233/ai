@@ -1,6 +1,8 @@
 # 免费ai中转站合集
 免费AI中转站
 
+如果网站打不开自己🪜打开
+
 0.02倍率 https://meapi.space/register?aff=UG9CTYPP7S7M
 
 0.025倍率 https://gaiml.xyz/register?aff=WBPQ4DFRED5C（可签到白嫖）
